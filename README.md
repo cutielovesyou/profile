@@ -1,2 +1,1 @@
-# catnip:
-hi im catnip. im bored and sleepy.
+# im bored. please kill me.
